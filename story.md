@@ -66,3 +66,6 @@ But it's okay, he danced anyway.
 
 and so they grooved the night away.
 ![animal party](http://i.imgur.com/ZzgdJ.gif)
+
+While the panda rocked furiously in the corner. 
+![pandarock](http://31.media.tumblr.com/tumblr_mdld94hi9B1r7pymxo1_500.gif)
